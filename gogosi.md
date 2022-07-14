@@ -1,0 +1,3 @@
+gogosi
+faina drojdie
+zahar
