@@ -1,0 +1,3 @@
+clatite 
+lapte
+oua faina
